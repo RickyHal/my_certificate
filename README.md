@@ -10,7 +10,8 @@ https://s2.ax1x.com/2019/12/24/lP2C4K.jpg
 https://tvax1.sinaimg.cn/large/006BSs40gy1ga86ox46xoj32yo3y87wm.jpg
 
 ## 二手图书交易系统著作权
-![avatar](https://tva1.sinaimg.cn/large/006BSs40gy1ga86o9puq4j31ww2pckjn.jpg)
+
+https://tva1.sinaimg.cn/large/006BSs40gy1ga86o9puq4j31ww2pckjn.jpg
 
 ## 软件技术交易系统著作权
 
